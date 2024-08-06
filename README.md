@@ -1,2 +1,2 @@
-# menjawab-kesalahpahaman-salafi
+# menjawab kesalahpahaman salafi
 dokumentasi tentang aqidah dan tasawuf
